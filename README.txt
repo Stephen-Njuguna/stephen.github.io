@@ -19,4 +19,4 @@ Visit [my portfolio website](https://stephen-njuguna.github.io/stephen.github.io
 
 Feel free to reach out via the contact form or email at [stephenjugunam@gmail.com].
 
-Happy browsing!
+Happy browsing!!
